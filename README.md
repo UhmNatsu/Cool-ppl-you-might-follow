@@ -1,2 +1,2 @@
 # Cool-ppl-you-might-follow
-https://github.com/user-attachments/assets/23b8d24e-9af1-4620-b442-a8c8eb7d519b
+![Image](https://github.com/user-attachments/assets/7a50b24b-5c56-4a47-9fe1-46839dcf4c5d)
